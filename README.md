@@ -3,8 +3,8 @@ Oi!😊
 Meu nome é Maria Eduarda. 👩🏻‍🦰
 
 🌎 Bacharel em Relações Internacionais pela UNESP.<br>
-💻 Estudando Engenharia de Computação pela UNIVESP.<br>
-🐾 Sou completamente apaixonada por animais e atualmente tenho 6 gatinhos muito fofinhos. 😻<br>
+💻 Estudando Bacharelado em Tecnologia da Informação na UNIVESP.<br>
+🐾 Sou completamente apaixonada por animais e tenho 6 gatinhos muito fofinhos. 😻<br>
 
 
 Meu LinkedIn:
